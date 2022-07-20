@@ -1,1 +1,1 @@
-##### salam gardaş
+salam gardaş
